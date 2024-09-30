@@ -1,1 +1,1 @@
-# Sprout
+# Sprout 🌱
